@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... money
 - 🌱 I’m currently learning ... how to make ^
 - 💞️ I’m looking to collaborate on ... hustling
-- 📫 How to reach me ... stretch out your hand
+- 📫 How to reach me ... you can't, I'm too tall
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... none
 
